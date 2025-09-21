@@ -1,28 +1,73 @@
-## THIS IS A WIP, IM TRYING TO FIGURE THIS OUT SO THIS IS SUPER MESSY
-![](https://komarev.com/ghpvc/?username=starc-reactor&label=times-ive-tried-working-out-my-github&base=0) 
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=starc-reactor&color=45a7de&label=Glasses-I've-had&style=plastic)  ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
 
--------
-tony area![tony stark b](https://github.com/user-attachments/assets/f162b983-76d7-40d8-8aee-35c2aaae4f11)![iron man b](https://github.com/user-attachments/assets/c3476a5e-5067-47fc-9767-de9e8d4dd0d1)
+<br />
 
-![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
-![kissed](https://github.com/user-attachments/assets/586632cf-424a-4520-a373-1fc1be40d415)
-![bunny](https://github.com/user-attachments/assets/15d54c2f-ee78-4155-a115-889de14a4ae4)
-![bi](https://github.com/user-attachments/assets/05d5e627-fee9-421f-a404-de31620246bf)
+<br />
 
-<img width="1919" height="1079" alt="Screenshot 2024-02-16 184747" src="https://github.com/user-attachments/assets/31a3738b-6b2e-4483-bac7-5b51ca7ec840" />
+_You can take away my house, all my tricks and toys. One thing you can’t take away?_
 
-![im2 s](https://github.com/user-attachments/assets/a8f561d5-9d07-457b-973f-307a2e0bbe92)
+![keyboard](https://github.com/user-attachments/assets/b5d3eff3-cfd0-4d72-91ce-986cf2d6b623)
 
-![hc s](https://github.com/user-attachments/assets/b31e7c15-c394-4d3d-b443-978f15028503)
-![im1 tony s](https://github.com/user-attachments/assets/2e95cce1-4584-4139-8e9f-911e23405577)
-![cw s](https://github.com/user-attachments/assets/59226f98-213e-46c0-8714-275be2bb3e7f)
-![am1 s](https://github.com/user-attachments/assets/0b8bbf64-a8c8-41c8-8c16-7fbcd7aa3026)
+![bunny](https://github.com/user-attachments/assets/e426b7cd-aaaa-42f6-a8ea-055d3b55a382)
+![sweetie](https://github.com/user-attachments/assets/9adb0851-e554-4c41-b38b-010476720721)
+![sweetie](https://github.com/user-attachments/assets/c665b851-86e9-4000-b5b7-e7fdd92729d7)
+![loved b](https://github.com/user-attachments/assets/8ae1971f-dbfe-41a8-ac80-04442b017bec)
+![kissed](https://github.com/user-attachments/assets/c1e5558d-147a-4efe-87d7-95112dae8480)
+![bi b](https://github.com/user-attachments/assets/4d51a6fb-7190-499c-99e2-fbe6d08569d8)
+![genius b](https://github.com/user-attachments/assets/a90c4e44-5d59-4c9a-a3e0-9450d474d64d)
+![hero b](https://github.com/user-attachments/assets/6a81fd75-5f04-482c-887e-7619bb21444c)
+![businessman b](https://github.com/user-attachments/assets/f0d13ec2-7bcf-4478-8dc1-cf1a217e3312)
+
+
+
+
+<br />
+
+𝐋 𝐈 𝐍 𝐊 𝐒
+
+<br />
+
+[🇸​ 🇹 ​🇷 ​🇦 ​🇼​ 🇵 ​🇦 ​🇬 ​🇪​](https://starkreactor.straw.page/)ㅤ×ㅤ[ᴀ ᴛ ᴀ ʙ ᴏ ᴏ ᴋ](https://starked.atabook.org/)ㅤ×ㅤ[ᴘ ʀ ᴏ ɴ ᴏ ᴜ ɴ ꜱ](https://pronouns.cc/@stark)
+ㅤ
+<br />
+
+<br />
+
 ![av1 s](https://github.com/user-attachments/assets/580eac46-5678-48ac-a16a-50940d612c07)
 
+<br />
+
+<br />
+
+> A cheap trick and a cheesy one liner.
+
+<br />
+
 
 
 -------
 
-me area
+zai
 
+![zombie b](https://github.com/user-attachments/assets/1d8b5dff-96cf-4456-9b88-77e44da025d7)
+![isaacwhy b](https://github.com/user-attachments/assets/810a06a0-916f-4a9d-bacb-cd7ec6f9d5be)
 ![sherlock](https://github.com/user-attachments/assets/8b0c0c6f-c117-4ddf-b927-e1a12c04b10a)
+![pochacco b](https://github.com/user-attachments/assets/f3343043-8c9b-44a2-b2e7-fead74f86841)
+![starlord b](https://github.com/user-attachments/assets/c4234f36-ef85-4de6-8386-4c6870a2c9dc)
+![possessive b](https://github.com/user-attachments/assets/bcdc14fd-aeb9-4733-b67e-4a9cb596e75e)
+![bunny lover b](https://github.com/user-attachments/assets/4253d5db-5f13-449c-baf7-9457181debfd)
+![selfshipper b](https://github.com/user-attachments/assets/9e5d4e08-2fb4-4842-9cd3-aaaccdafd9c4)
+
+<br />
+<br />
+
+> im trying to figure this out!! ( ꩜ ᯅ ꩜;)⁭ ⁭/ooc
+> 
+<br />
+
+<img width="99" height="56" alt="raccoon" src="https://github.com/user-attachments/assets/65a9c5e8-2ef5-488c-81b0-bdd1c99b0b36" />
+
+<br />
+
