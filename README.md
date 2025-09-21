@@ -10,19 +10,6 @@ _You can take away my house, all my tricks and toys. One thing you can’t take 
 
 ![keyboard](https://github.com/user-attachments/assets/b5d3eff3-cfd0-4d72-91ce-986cf2d6b623)
 
-![bunny](https://github.com/user-attachments/assets/e426b7cd-aaaa-42f6-a8ea-055d3b55a382)
-![sweetie](https://github.com/user-attachments/assets/9adb0851-e554-4c41-b38b-010476720721)
-![sweetie](https://github.com/user-attachments/assets/c665b851-86e9-4000-b5b7-e7fdd92729d7)
-![loved b](https://github.com/user-attachments/assets/8ae1971f-dbfe-41a8-ac80-04442b017bec)
-![kissed](https://github.com/user-attachments/assets/c1e5558d-147a-4efe-87d7-95112dae8480)
-![bi b](https://github.com/user-attachments/assets/4d51a6fb-7190-499c-99e2-fbe6d08569d8)
-![genius b](https://github.com/user-attachments/assets/a90c4e44-5d59-4c9a-a3e0-9450d474d64d)
-![hero b](https://github.com/user-attachments/assets/6a81fd75-5f04-482c-887e-7619bb21444c)
-![businessman b](https://github.com/user-attachments/assets/f0d13ec2-7bcf-4478-8dc1-cf1a217e3312)
-
-
-
-
 <br />
 
 𝐋 𝐈 𝐍 𝐊 𝐒
@@ -42,6 +29,16 @@ _You can take away my house, all my tricks and toys. One thing you can’t take 
 <br />
 
 > A cheap trick and a cheesy one liner.
+
+![bunny](https://github.com/user-attachments/assets/e426b7cd-aaaa-42f6-a8ea-055d3b55a382)
+![sweetie](https://github.com/user-attachments/assets/9adb0851-e554-4c41-b38b-010476720721)
+![sweetie](https://github.com/user-attachments/assets/c665b851-86e9-4000-b5b7-e7fdd92729d7)
+![loved b](https://github.com/user-attachments/assets/8ae1971f-dbfe-41a8-ac80-04442b017bec)
+![kissed](https://github.com/user-attachments/assets/c1e5558d-147a-4efe-87d7-95112dae8480)
+![bi b](https://github.com/user-attachments/assets/4d51a6fb-7190-499c-99e2-fbe6d08569d8)
+![genius b](https://github.com/user-attachments/assets/a90c4e44-5d59-4c9a-a3e0-9450d474d64d)
+![hero b](https://github.com/user-attachments/assets/6a81fd75-5f04-482c-887e-7619bb21444c)
+![businessman b](https://github.com/user-attachments/assets/f0d13ec2-7bcf-4478-8dc1-cf1a217e3312)
 
 <br />
 
