@@ -1,6 +1,6 @@
 <div align="right">
   
-> ![](https://komarev.com/ghpvc/?username=starc-reactor&color=901c1c&label=Bottles-I've-downed&style=plastic)  ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
+![](https://komarev.com/ghpvc/?username=starc-reactor&color=901c1c&label=Bottles-I've-downed&style=plastic)  ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
 
 <div align="left">
   
