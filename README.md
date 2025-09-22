@@ -4,7 +4,7 @@
 
 <div align="left">
   
-_You can take away my house, all my tricks and toys. One thing you can’t take away?_
+**_You can take away my house, all my tricks and toys. One thing you can’t take away?_**
 
 <div align="center">
 
@@ -48,7 +48,9 @@ _You can take away my house, all my tricks and toys. One thing you can’t take 
 
 -------
 
-zai!!!
+**zai!!!**
+
+> [ooc]
 
 <img width="99" height="56" alt="raccoon" src="https://github.com/user-attachments/assets/65a9c5e8-2ef5-488c-81b0-bdd1c99b0b36" />
 
@@ -56,7 +58,7 @@ zai!!!
 
 <br />
 
-> ooc\\ github not finished!!! taking a break, sorry!!! ( ꩜ ᯅ ꩜;)⁭
+github not finished!!! taking a break, sorry!!! ( ꩜ ᯅ ꩜;)⁭
 
 <br />
 
