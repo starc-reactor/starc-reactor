@@ -59,7 +59,8 @@
 <br />
 
 github not finished!!! taking a break, sorry!!! ( ꩜ ᯅ ꩜;)⁭
-
+i dislike when someone likes tony too, i know its dumb but it feels like tearing open my chest ( ╥﹏╥ )
+ 
 <br />
 
 ![zombie b](https://github.com/user-attachments/assets/1d8b5dff-96cf-4456-9b88-77e44da025d7)
