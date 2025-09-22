@@ -1,9 +1,12 @@
-<div align="center">
+<div align="right">
   
-![](https://komarev.com/ghpvc/?username=starc-reactor&color=901c1c&label=Glasses-I've-had&style=plastic)  ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
+> ![](https://komarev.com/ghpvc/?username=starc-reactor&color=901c1c&label=Bottles-I've-downed&style=plastic)  ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
 
-
+<div align="left">
+  
 _You can take away my house, all my tricks and toys. One thing you can’t take away?_
+
+<div align="center">
 
 <img width="2662" height="1459" alt="banner" src="https://github.com/user-attachments/assets/1e7fe771-f8c2-404c-bcad-c0594df42734" />
 
@@ -18,8 +21,6 @@ _You can take away my house, all my tricks and toys. One thing you can’t take 
 <br />
 
 ![av1 s](https://github.com/user-attachments/assets/580eac46-5678-48ac-a16a-50940d612c07)
-
-<br />
 
 <br />
 
@@ -47,7 +48,17 @@ _You can take away my house, all my tricks and toys. One thing you can’t take 
 
 -------
 
-zai
+zai!!!
+
+<img width="99" height="56" alt="raccoon" src="https://github.com/user-attachments/assets/65a9c5e8-2ef5-488c-81b0-bdd1c99b0b36" />
+
+<br />
+
+<br />
+
+> im trying to figure this out!! ( ꩜ ᯅ ꩜;)⁭ ⁭/ooc
+
+<br />
 
 ![zombie b](https://github.com/user-attachments/assets/1d8b5dff-96cf-4456-9b88-77e44da025d7)
 ![isaacwhy b](https://github.com/user-attachments/assets/810a06a0-916f-4a9d-bacb-cd7ec6f9d5be)
@@ -57,15 +68,6 @@ zai
 ![possessive b](https://github.com/user-attachments/assets/bcdc14fd-aeb9-4733-b67e-4a9cb596e75e)
 ![bunny lover b](https://github.com/user-attachments/assets/4253d5db-5f13-449c-baf7-9457181debfd)
 ![selfshipper b](https://github.com/user-attachments/assets/9e5d4e08-2fb4-4842-9cd3-aaaccdafd9c4)
-
-<br />
-<br />
-
-> im trying to figure this out!! ( ꩜ ᯅ ꩜;)⁭ ⁭/ooc
-> 
-<br />
-
-<img width="99" height="56" alt="raccoon" src="https://github.com/user-attachments/assets/65a9c5e8-2ef5-488c-81b0-bdd1c99b0b36" />
 
 <br />
 
