@@ -1,22 +1,17 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=starc-reactor&color=45a7de&label=Glasses-I've-had&style=plastic)  ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
+![](https://komarev.com/ghpvc/?username=starc-reactor&color=901c1c&label=Glasses-I've-had&style=plastic)  ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2)
 
-<br />
-
-<br />
 
 _You can take away my house, all my tricks and toys. One thing you can’t take away?_
 
-![keyboard](https://github.com/user-attachments/assets/b5d3eff3-cfd0-4d72-91ce-986cf2d6b623)
+<img width="2662" height="1459" alt="banner" src="https://github.com/user-attachments/assets/1e7fe771-f8c2-404c-bcad-c0594df42734" />
+
+## <u>**ʟɪɴᴋꜱ**</u>
 
 <br />
 
-𝐋 𝐈 𝐍 𝐊 𝐒
-
-<br />
-
-[🇸​ 🇹 ​🇷 ​🇦 ​🇼​ 🇵 ​🇦 ​🇬 ​🇪​](https://starkreactor.straw.page/)ㅤ×ㅤ[ᴀ ᴛ ᴀ ʙ ᴏ ᴏ ᴋ](https://starked.atabook.org/)ㅤ×ㅤ[ᴘ ʀ ᴏ ɴ ᴏ ᴜ ɴ ꜱ](https://pronouns.cc/@stark)
+[🅂 🅃 🅁 🄰 🅆 🄿 🄰 🄶 🄴](https://starkreactor.straw.page/)ㅤ×ㅤ[🄰 🅃 🄰 🄱 🄾 🄾 🄺](https://starked.atabook.org/)ㅤ×ㅤ[🄿 🅁 🄾 🄽 🄾 🅄 🄽 🅂](https://pronouns.cc/@stark)
 ㅤ
 <br />
 
@@ -28,7 +23,13 @@ _You can take away my house, all my tricks and toys. One thing you can’t take 
 
 <br />
 
-> A cheap trick and a cheesy one liner.
+> I *am* Iron Man.
+
+<br />
+
+<br />
+
+<br />
 
 ![bunny](https://github.com/user-attachments/assets/e426b7cd-aaaa-42f6-a8ea-055d3b55a382)
 ![sweetie](https://github.com/user-attachments/assets/9adb0851-e554-4c41-b38b-010476720721)
