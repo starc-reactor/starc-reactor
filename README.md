@@ -4,7 +4,7 @@
 
 <div align="left">
   
-**_You can take away my house, all my tricks and toys. One thing you can’t take away?_**
+_You can take away my house, all my tricks and toys, but one thing you can't take away?_
 
 <div align="center">
 
@@ -24,7 +24,7 @@
 
 <br />
 
-> I *am* Iron Man.
+> $\color{#2176ab}{\textsf{I am}}$ $\color{#b22323}{\textsf{Iron}}$ $\color{#b77e18}{\textsf{Man.}}$
 
 <br />
 
@@ -59,6 +59,7 @@
 <br />
 
 github not finished!!! taking a break, sorry!!! ( ꩜ ᯅ ꩜;)⁭
+
 i dislike when someone likes tony too, i know its dumb but it feels like tearing open my chest ( ╥﹏╥ )
  
 <br />
