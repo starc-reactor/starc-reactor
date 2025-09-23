@@ -60,7 +60,7 @@ _You can take away my house, all my tricks and toys, but one thing you can't tak
 
 github not finished!!! taking a break, sorry!!! ( ꩜ ᯅ ꩜;)⁭
 
-i dislike when someone likes tony too, i know its dumb but it feels like tearing open my chest ( ╥﹏╥ )
+i dislike when someone likes tony too, i know its dumb but it feels like tearing open my chest so i hide freely, im sorry, dont take into account please! ( ╥﹏╥ )
  
 <br />
 
