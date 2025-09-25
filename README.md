@@ -34,7 +34,6 @@ _You can take away my house, all my tricks and toys, but one thing you can't tak
 
 ![bunny](https://github.com/user-attachments/assets/e426b7cd-aaaa-42f6-a8ea-055d3b55a382)
 ![sweetie](https://github.com/user-attachments/assets/9adb0851-e554-4c41-b38b-010476720721)
-![sweetie](https://github.com/user-attachments/assets/c665b851-86e9-4000-b5b7-e7fdd92729d7)
 ![loved b](https://github.com/user-attachments/assets/8ae1971f-dbfe-41a8-ac80-04442b017bec)
 ![kissed](https://github.com/user-attachments/assets/c1e5558d-147a-4efe-87d7-95112dae8480)
 ![bi b](https://github.com/user-attachments/assets/4d51a6fb-7190-499c-99e2-fbe6d08569d8)
