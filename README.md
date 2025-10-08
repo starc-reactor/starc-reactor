@@ -14,7 +14,7 @@ _You can take away my house, all my tricks and toys, but one thing you can't tak
 
 <br />
 
-[🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkreactor.straw.page/)ㅤ×ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starked.atabook.org/)ㅤ×ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸​ . 🇨​ 🇨​](https://pronouns.cc/@stark)ㅤ×ㅤ[🇨​ 🇦​ 🇷​ 🇷​ 🇩​​](https://starks-files.carrd.co/)
+[🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkreactor.straw.page/)ㅤ×ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starked.atabook.org/)ㅤ×ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starked)
 ㅤ
 <br />
 
