@@ -10,8 +10,6 @@ _You can take away my house, all my tricks and toys, but one thing you can't tak
 
 <img width="2662" height="1459" alt="banner" src="https://github.com/user-attachments/assets/1e7fe771-f8c2-404c-bcad-c0594df42734" />
 
-## <u>**ʟɪɴᴋꜱ**</u>
-
 <br />
 
 [🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkreactor.straw.page/)ㅤ×ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starked.atabook.org/)ㅤ×ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starked)ㅤ×ㅤ[ᴄ ᴀ ʀ ʀ ᴅ](https://starks-files.carrd.co/)
