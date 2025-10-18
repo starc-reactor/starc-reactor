@@ -43,34 +43,3 @@ _You can take away my house, all my tricks and toys, but one thing you can't tak
 
 <br />
 
-
-
--------
-
-**zai!!!**
-
-> [ooc]
-
-<img width="99" height="56" alt="raccoon" src="https://github.com/user-attachments/assets/65a9c5e8-2ef5-488c-81b0-bdd1c99b0b36" />
-
-<br />
-
-<br />
-
-github not finished!!! taking a break, sorry!!! ( ꩜ ᯅ ꩜;)⁭
-
-i dislike when someone likes tony too, i know its dumb but it feels like tearing open my chest so i hide freely, im sorry, dont take into account please! ( ╥﹏╥ )
- 
-<br />
-
-![zombie b](https://github.com/user-attachments/assets/1d8b5dff-96cf-4456-9b88-77e44da025d7)
-![isaacwhy b](https://github.com/user-attachments/assets/810a06a0-916f-4a9d-bacb-cd7ec6f9d5be)
-![sherlock](https://github.com/user-attachments/assets/8b0c0c6f-c117-4ddf-b927-e1a12c04b10a)
-![pochacco b](https://github.com/user-attachments/assets/f3343043-8c9b-44a2-b2e7-fead74f86841)
-![starlord b](https://github.com/user-attachments/assets/c4234f36-ef85-4de6-8386-4c6870a2c9dc)
-![possessive b](https://github.com/user-attachments/assets/bcdc14fd-aeb9-4733-b67e-4a9cb596e75e)
-![bunny lover b](https://github.com/user-attachments/assets/4253d5db-5f13-449c-baf7-9457181debfd)
-![selfshipper b](https://github.com/user-attachments/assets/9e5d4e08-2fb4-4842-9cd3-aaaccdafd9c4)
-
-<br />
-
